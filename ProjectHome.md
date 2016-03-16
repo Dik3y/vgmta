@@ -1,0 +1,1 @@
+This project space will be used amongst scripters to share their efforts for a roleplay game in the multi theft auto environment.
